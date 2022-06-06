@@ -36,8 +36,7 @@ Join GDG Nairobi Chapter to never miss on such great events [here](https://gdg.c
 
 In Case you have any question or need any clarification do reach out to me on either [Twitter](https://twitter.com/Kai_mwanyumba) or [LinkdeIn](https://www.linkdin.com/in/brayan-mwanyumba-3094982227) and I will be more than glad to be of help to you.
 
-You can also reach out on Gospel Nyareki either on [Twitter](https://twitter.com/i_njili) or LinkedI[
-](https://www.linkedin.com/in/nyareki-gospel-5a1a40236) and he will also be more than glad to be of help
+You can also reach out on Gospel Nyareki either on [Twitter](https://twitter.com/i_njili) or [LinkedIn](https://www.linkedin.com/in/nyareki-gospel-5a1a40236) and he will also be more than glad to be of help
 
 Thank You For Attending Our Session 😇  
 
